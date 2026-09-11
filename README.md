@@ -1,1 +1,0 @@
-# ry-jg.github.io
